@@ -1,0 +1,1 @@
+# git_project_by_Kusto7_student_SkyPro
